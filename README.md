@@ -5,10 +5,10 @@
 ‎‎🦌 ୧ dnc + ask 2 heavy inspo skins . <br/>
 </p>
 <p align="center">
-c+h ok for friends !  ও <br/>
+c+h : ok for friends !  ও <br/>
 </p>
 <p align="center">
- ꒰⠀ w2i - im usually offtab / afk <br/>
+ ꒰⠀w2i - im usually offtab / afk <br/>
 </p>
 <p align="center">
 rp + ships dni⠀  ៸៸  ⠀full dni on straw . 🎻 <br/>
