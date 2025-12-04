@@ -11,7 +11,7 @@ c+h ok for friends !  ও <br/>
 : ꒰ w2i - im usually offtab / afk <br/>
 </p>
 <p align="center">
-៸៸ full dni on straw . 🎻 <br/>
+rp + ships dni⠀  ៸៸  ⠀full dni on straw . 🎻 <br/>
 </p>
 
 <p align="center">
