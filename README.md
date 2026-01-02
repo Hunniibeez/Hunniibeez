@@ -8,7 +8,7 @@
 ask to c+h⠀⁔⠀w2i : usually offtab/afk ! <br/>
 </p>
 <p align="center">
-꒰  **rp + ships dni**⠀ ៸៸ ⠀full dni on straw .  ୨ <br/>
+꒰  rp + ships dni⠀ ៸៸ ⠀full dni on straw .  ୨ <br/>
 </p>
 <p align="center">
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/5bfcf352-bb05-419e-8f31-315beba4ce3d" />
