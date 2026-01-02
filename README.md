@@ -14,6 +14,6 @@ ask to c+h⠀⁔⠀<ins>w2i</ins> : usually offtab/afk ! <br/>
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/5bfcf352-bb05-419e-8f31-315beba4ce3d" />
 </p>
 <p align="center">
-<a href=https://heartaache.atabook.org><u>ata</u></a>   ⠀<a href=https://heartaache.straw.page><u>straw</u></a> ⠀  <a href=https://rentry.co/perfectimperfections><u>rentry</u></a>
+<a href=https://heartaache.atabook.org><u>ata</u></a>⠀<a href=https://heartaache.straw.page><u>straw</u></a>⠀<a href=https://rentry.co/perfectimperfections><u>rentry</u></a>
 <p align="center">
 <img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/dbb99365-7167-467a-8843-13938872cb32" />
