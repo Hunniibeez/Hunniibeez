@@ -1,6 +1,6 @@
 <p align="center">
-<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/736eb516-0599-4c5d-bb75-be630b41a6b0" />
-</p>
+<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/828ea5f4-95de-43dd-8a12-8d35a2b1ea5e" />
+
 <p align="center">
 ‎‎᭥   <b>dnc</b> + <i>ask</i> 2 heavy inspo skins . ˚ <br/>
 </p>
@@ -16,4 +16,4 @@ ask to c+h⠀⁔⠀<ins>w2i</ins> : usually offtab/afk ! <br/>
 <p align="center">
 <a href=https://heartaache.atabook.org><u>ata</u></a>⠀<a href=https://heartaache.straw.page><u>straw</u></a>⠀<a href=https://rentry.co/perfectimperfections><u>rentry</u></a>
 <p align="center">
-<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/dbb99365-7167-467a-8843-13938872cb32" />
+<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/828ea5f4-95de-43dd-8a12-8d35a2b1ea5e" />
